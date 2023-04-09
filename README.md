@@ -1,0 +1,1 @@
+# backup-Elantech-enable-touchpad-while-typing-Lenovo-Y520-
